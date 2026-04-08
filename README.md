@@ -2,5 +2,4 @@
 - 👀 I'm interested in making indie games.
 - 🌱 I'm currently studying machine learning and indie games.
 - 💞️ I look forward to discussing it with my friends who are developing independent games against chess!
-- 📫 You can add my QQ number to understand me: 3087368760.
 - ⚡ Fun fact: Create a fun world.
